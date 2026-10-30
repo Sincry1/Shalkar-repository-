@@ -1,0 +1,2 @@
+# Shalkar-repository-
+для клауда
